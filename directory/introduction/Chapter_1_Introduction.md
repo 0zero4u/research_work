@@ -95,22 +95,22 @@ The following chapters will develop this argument through a sustained analysis o
 Works Cited
 =============
 
-Unknown. "Untitled." (n.d.), pp. 2.
+Chatterji, Marc. "Train to Pakistan: against Mainstream Representations of the Partition of India?" (n.d.), pp. 1-10.
 
-Unknown. "Untitled." (n.d.), pp. 11.
+"Partition and Communal Violence in Train to Pakistan." (n.d.), pp. 1-5.
 
-Unknown. "Untitled." (n.d.), pp. 1.
+Marc Chatterji. "Train to Pakistan: against Mainstream Representations of the Partition of India?" (n.d.), pp. 1-10.
 
-Unknown. "Untitled." (n.d.), pp. 2.
+Marc Chatterji. "Train to Pakistan: against Mainstream Representations of the Partition of India?" (n.d.), pp. 1-10.
 
-Unknown. "Untitled." (n.d.), pp. 1.
+Marc Chatterji. "Train to Pakistan: against Mainstream Representations of the Partition of India?" (n.d.), pp. 1-10.
 
-Unknown. "Untitled." (n.d.), pp. 2.
+Marc Chatterji. "Train to Pakistan: against Mainstream Representations of the Partition of India?" (n.d.), pp. 1-10.
 
-Unknown. "Untitled." (n.d.), pp. 16.
+Marc Chatterji. "Train to Pakistan: against Mainstream Representations of the Partition of India?" (n.d.), pp. 1-10.
 
-Unknown. "Untitled." (n.d.), pp. 14.
+Marc Chatterji. "Train to Pakistan: against Mainstream Representations of the Partition of India?" (n.d.), pp. 1-10.
 
-Unknown. "Untitled." (n.d.), pp. 6.
+Marc Chatterji. "Train to Pakistan: against Mainstream Representations of the Partition of India?" (n.d.), pp. 1-10.
 
-Unknown. "Untitled." (n.d.), pp. 1.
+Marc Chatterji. "Train to Pakistan: against Mainstream Representations of the Partition of India?" (n.d.), pp. 1-10.
